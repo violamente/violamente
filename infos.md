@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @violamente
+- 👀 I’m interested in coding and streaming
+- 🌱 I’m currently learning html and others
+- 📫 How to reach me ... @violamentee on telegram or
+- link in bio: https://link.space/@duolingo
